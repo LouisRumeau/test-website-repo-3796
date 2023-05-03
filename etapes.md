@@ -14,6 +14,6 @@ title: Etapes
 7. Dimanche 11/06 : Chasseradès - Bleymard 17 kms (5h)
 8. Lundi 12/06 : Bleyamrd - Pont de Montvert 19,3 kms (6h)
 9. Mardi 13/06 : Pont de Montvert - Bédoués 23,5 kms (6h40)
-10. Mercredi 14/06 : Bédoués - Ancienne gare Cassagnas
+10. Mercredi 14/06 : Bédoués - Ancienne gare Cassagnas 17,4 kms (4h20)
 11. Jeudi 15/06 : Ancienne gare Cassagnas - St Étienne vallée française 23,9 kms (6h45)
 12. Vendredi 16/06 : Saint Étienne vallée française  - Saint Jean du Gard 12,7 kms (3h55)
