@@ -26,5 +26,5 @@ Hôtel du pont neuf - 3 chambres dont une triple - 59€/pers/demi-pension
 * <u>14/06 : Ancienne gare de Cassagnas</u>
 Gîte d'étape de l'ancienne gare - 2 ch de 4 personnes - 61€/pers/demi-pension
 * <u>15/06 : Saint Etienne vallée française</u>
-Le pont de Burgen - 3 chambres sur 3 ou 4 espaces - 50€/pers/demi-pension
+[Le pont de Burgen](http://www.gites-randos-cevennes.com/index.html) - 3 chambres sur 3 ou 4 espaces - 50€/pers/demi-pension
 * <u>16/06 : arrivée à Saint-Jean du Gard</u>
