@@ -5,5 +5,5 @@ title: Accueil
 
 Petite site créé pour cet évènement tant attendu...
 
-#### Site créé à partir d'une proposition de cette association
-L'Échappée Belle est **une association** qui a pour objet de soutenir et promouvoir des activités et des personnes qui travaillent autour de **valeurs de consentement, de bien commun et de prendre soin des personnes et de l’environnement**.
+Initialement prévu en juin 2022, annulé pour une raison indépendante de notre volonté, il se fera donc cette année.
+Peut-être que nous devrons adapter certaines étapes en fonction de l'état de forme des marcheurs...
