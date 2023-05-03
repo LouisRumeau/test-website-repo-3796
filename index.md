@@ -5,7 +5,7 @@ title: Accueil
 
 Petite site créé pour cet évènement tant attendu...
 
-Initialement prévu en juin 2022, annulé pour une raison indépendante de notre volonté, il se fera donc cette année.
+Initialement prévu en juin 2022, annulé pour une raison indépendante de notre volonté, il se fera donc cette année **en juin 2023**.
 Peut-être que nous devrons adapter certaines étapes en fonction de l'état de forme des marcheurs...
   
 ![Stevenson](
