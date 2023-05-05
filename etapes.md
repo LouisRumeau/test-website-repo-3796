@@ -5,7 +5,7 @@ title: Etapes
 
 <u>Dimanche 4/06</u> : arrivée au Puy en Velay
  
-1. Lundi 5/06 : Le Puy en Velay - Le Monastier sur Gazeille 19,3kms (5h30)
+1. Lundi 5/06 : Le Puy en Velay - Le Monastier sur Gazeille 19,3kms (5h30) [Voir l'étape sur Visiorando](https://www.visorando.com/randonnee-le-puy-en-velay-monastier-sur-gazeille/)
 2. Mardi 6/06 : Le Monastier -  Bouchet Saint-Nicolas 23,9 kms (6h05)
 3. Mercredi 7/06 : Bouchet Saint-Nicolas - Pradelles 21,2 ks (5h35)
 4. Jeudi 8/06 :  Pradelles - Langogne - Cheylard l'Evêque 21,9 kms (5h45)
