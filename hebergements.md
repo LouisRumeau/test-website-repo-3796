@@ -30,7 +30,6 @@ Voici les différents hébergements que nous avons choisis :
 * <u>16/06 : arrivée à Saint-Jean du Gard</u>
   
 <u>Paiements déjà effectués :</u>
-- Puy : Chambres d'hôtes l'Epicurium **x€** (Yannick)
 - Le Monastier : **81€** (André)
 - La Bastide Puylaurent : **90€** (Louis)
 - Gîte Gare Cassagnas : **130€** (Louis)
