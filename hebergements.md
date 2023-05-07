@@ -28,3 +28,8 @@ Voici les différents hébergements que nous avons choisis :
 * <b>15/06 : Saint Etienne vallée française</b>
 [Le pont de Burgen](http://www.gites-randos-cevennes.com/index.html) - 3 chambres sur 3 ou 4 espaces - 50€/pers/demi-pension
 * <u>16/06 : arrivée à Saint-Jean du Gard</u>
+  
+<u>Paiements déjà effectués :</u>
+- Puy : Chambres d'hôtes l'Epicurium **x€** (Yannick)
+- La Bastide Puylaurent : **90€** (Louis)
+- Gîte Gare Cassagnas : **130€** (Louis)
