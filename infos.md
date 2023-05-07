@@ -23,7 +23,7 @@ Le pays de Pradelles est une terre de volcans, ses paysages sont façonnés par 
 
 **Cheylard l'Evêque.**
 
-** La Bastide Puylaurent.**
+**La Bastide Puylaurent.**
 
 **Chasseradès.**
 
