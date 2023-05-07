@@ -13,3 +13,7 @@ https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images
 **Alain** à l’entrainement en mai 2023.
 ![Alain](
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/alain.jpeg)
+  
+**Annie** et **André** à l’entrainement le 3 mai 2023.
+![Alain](
+https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/annie-andre.jpeg)
