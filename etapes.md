@@ -2,7 +2,7 @@
 title: Etapes
 ---
 ### Résumé des étapes
-Avec les liens directs sur visio rando et sur une image de la carte routière.<br>
+Avec les liens directs sur visio rando et sur une image de la carte routière.<br><br>
 <u>Dimanche 4/06</u> : arrivée au Puy en Velay
  
 1. Lundi 5/06 : Le Puy en Velay - Le Monastier sur Gazeille 19,3kms (5h30)<br> [Voir sur Visiorando](https://www.visorando.com/randonnee-le-puy-en-velay-monastier-sur-gazeille/) / [carte routière](
