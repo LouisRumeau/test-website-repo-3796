@@ -7,5 +7,5 @@ title: Sites
 **FFRandonnée Haute-Loire**<br>
 [site](https://www.rando-hauteloire.fr/chemin-stevenson-gr-70/)
 
-**Visio rando : chemin de Stevenson**
+**Visio rando : chemin de Stevenson**<br>
 [site](https://www.visorando.com/randonnee-chemin-de-stevenson/)
