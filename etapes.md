@@ -29,7 +29,9 @@ https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/etape-11.jpg)
 12. Vendredi 16/06 : Saint Étienne vallée française  - Saint Jean du Gard 12,7 kms (3h55)<br>[Voir sur Visiorando]() / [carte routière](
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/etape-12.jpg)
+
 ---
+
 **Puy-en-Velay.** 19215 habitants - dépt 43<br>
 [wikipédia](https://fr.wikipedia.org/wiki/Le_Puy-en-Velay)
 [site mairie](http://www.lepuyenvelay.fr/) 
