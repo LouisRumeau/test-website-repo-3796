@@ -25,20 +25,26 @@ Le pays de Pradelles est une terre de volcans, ses paysages sont façonnés par 
 
 **La Bastide Puylaurent.**
 
-**Chasseradès.**
+**Chasseradès.** 144 habitants - dépt 48<br>
+Chasseradès est une ancienne commune française, située dans le département de la Lozère en région Occitanie. Elle a formé le 1er janvier 2017 la commune nouvelle de Mont Lozère et Goulet.<br>
+[wikipédia](https://fr.wikipedia.org/wiki/Chasseradès)<br>
+[site sur la commune](http://chasserades48.free.fr/)
 
 **Le Bleymard.** 377 habitants - dépt 48<br>
 Le Bleymard est une ancienne commune française, située dans le département de la Lozère en région Occitanie. Elle fait partie depuis le 1er janvier 2017 de la commune nouvelle de Mont Lozère et Goulet dont elle constitue le village principal. La mairie de la nouvelle commune se situe au Bleymard. <br>
 Le Bleymard est situé dans la vallée du Lot, sur la route D 901, à 20 km à vol d'oiseau à l'est de Mende, 9 km à l'est de Bagnols-les-Bains et 3 km à l'ouest du col des Tribes (1 130 m), qui donne accès à la vallée de l'Altier (le col des Tribes est sur la ligne de partage des eaux entre l'océan Atlantique et la mer Méditerranée).<br>
 [wikipédia](https://fr.wikipedia.org/wiki/Le_Bleymard)
 
-**Pont de montvert.**
+**Pont de montvert.** 292 habitants - dépt 48<br>
+Le Pont-de-Montvert est une ancienne commune française, située dans le département de la Lozère en région Occitanie, devenue, le 1er janvier 2016, une commune déléguée de la commune nouvelle de Pont de Montvert - Sud Mont Lozère. Elle était le chef lieu de l'ancien canton du Pont-de-Montvert.<br>
+Situé dans le sud du département de la Lozère sur le versant méridional du mont Lozère, Le Pont-de-Montvert est traversé par le Tarn, qui prend sa source sur les hauteurs de la commune, non loin du hameau de l'Hôpital. Deux courtes rivières, le Rieumalet et le Martinet, prennent elles aussi leur source dans la commune et rejoignent le Tarn au niveau du village du Pont-de-Montvert.<br>
+[wikipédia](https://fr.wikipedia.org/wiki/Le_Pont-de-Montvert)
 
 **Florac.** 1950 habitants - dépt 48<br>
 Florac est une ancienne commune française, située dans le département de la Lozère en région Occitanie, devenue, le 1er janvier 2016, une commune déléguée de la commune nouvelle de Florac-Trois-Rivières en fusionnant avec La Salle-Prunet. Elle est également le siège du parc national des Cévennes. <br>
 Elle se trouve au carrefour de trois sites géologiques remarquables : le schiste des Cévennes, le granit du mont Lozère et le calcaire des causses.
-Elle se situe également au confluent de trois cours d'eau : la source du Pêcher peuplée de grosses truites, le Tarnon, la Mimente et le Tarn. Voilà pourquoi Florac se dit être au carrefour de la pierre et de l'eau. 
-[wikipédia](https://fr.wikipedia.org/Florac)
+Elle se situe également au confluent de trois cours d'eau : la source du Pêcher peuplée de grosses truites, le Tarnon, la Mimente et le Tarn. Voilà pourquoi Florac se dit être au carrefour de la pierre et de l'eau.<br> 
+[wikipédia](https://fr.wikipedia.org/wiki/Florac)
 
 **Cassagnas.** 125 habitants - dépt 48<br>
 Cassagnas est une commune française, située dans le sud-est du département de la Lozère, en région Occitanie.<br>
