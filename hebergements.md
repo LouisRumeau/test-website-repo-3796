@@ -18,7 +18,7 @@ Voici les différents hébergements que nous avons choisis :
 * <b>10/06 : Chasseradès</b>
 [Les sources](http://www.hotel-lozere.fr/) - 2 ch (couple) 1 ch (2 lits) - 65€/pers/demi-pension
 * <b>11/06 : Bleymard</b>
-[Gîte Chez le Poulitou](https://www.gite-chez-le-poulitou.fr/) - 
+[Gîte Chez le Poulitou](https://www.gite-chez-le-poulitou.fr/) - <span style="color:red">Prévoir repas le soir</span>
 * <b>12/06 : Pont de Montvert</b>
 [Gîtes du Chastel]( https://cevennes-gites.com/) - 1 gîte pour 4 - 27€/pers/PDJ - 6 repas soir 19€/pers -  1 résa pour 2 à la Truite enchantée
 * <b>13/06 : Florac</b>
@@ -27,7 +27,7 @@ Voici les différents hébergements que nous avons choisis :
 [Gîte d'étape de l'ancienne gare](http://www.relais-stevenson.fr/) - 2 ch de 4 personnes - 61€/pers/demi-pension
 * <b>15/06 : Saint Etienne vallée française</b>
 [Le pont de Burgen](http://www.gites-randos-cevennes.com/index.html) - 3 chambres sur 3 ou 4 espaces - 50€/pers/demi-pension
-* <u>16/06 : arrivée à Saint-Jean du Gard</u>
+* <u>16/06 : arrivée à Saint-Jean du Gard</u> Retour sur Marseille.
   
 <u>Paiements déjà effectués :</u>
 - Le Monastier : **81€** (André)
