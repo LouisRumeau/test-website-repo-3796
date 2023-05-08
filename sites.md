@@ -1,6 +1,9 @@
 ---
 title: Sites
 ---
+![Stevenson](
+https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/stevenson-modestine.png)
+
 **Association sur le chemin de Robert Louis Stevenson**<br>
 [site](https://www.chemin-stevenson.org/)
 
