@@ -7,3 +7,4 @@ Vastes plateaux volcaniques du Velay, hautes terres rudes du Gévaudan, croupes 
 Retour sur les terres de l'enfance des Rumeau!
 ![Stevenson](
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/robert-louis-stevenson-granger.jpg)
+<img src="/images/robert-louis-stevenson-granger.jpg" width="200" height="200" />
