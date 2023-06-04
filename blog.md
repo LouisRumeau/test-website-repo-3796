@@ -1,9 +1,9 @@
 ---
 title: Blog
 ---
-### J-1 au Puy la veille du départ
+#### J-1 au Puy la veille du départ
 Ça y est le groupe est réuni au Puy en Velay. Repos avant le démarrage demain matin 5/06
-[Les randonneurs](images/les-randonneurs.jpg)
+![Les randonneurs](images/les-randonneurs.jpg)
 
 ---
 
