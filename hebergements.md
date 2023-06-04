@@ -4,7 +4,7 @@ title: Hébergements
 Voici les différents hébergements que nous avons choisis :
 
 * <b>4/06 : Arrivée au Puy en Velay</b> 
- [Chambres d'hôtes l'Epicurium](http://l-epicurium.com/) - 3 chambres (72,50 € PDJ) - <span style="color:red">Prévoir repas le soir</span>
+ [Chambres d'hôtes l'Epicurium](http://l-epicurium.com/) - 3 chambres (75,50 € PDJ) - <span style="color:red">Prévoir repas le soir</span>
 * <b>5/06 : Monastier</b>
 [Camping l'Estela](https://campingestela.fr) - 2 chalets - 44,5€/pers/demi-pension
 * <b>6/06 : Bouchet Saint-Nicolas</b>
