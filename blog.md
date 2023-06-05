@@ -6,6 +6,7 @@ Première étape de la rando. Le beau temps est au rdv. Bonne mise en jambe de p
 [La Loire](images/e1-img3.jpg)<br>
 [Ça monte](images/e1-img2.jpg)<br>
 [Un calvaire](images/e1-img1.jpg)<br>
+[Reprise après repas](images/e1-img4.jpg)<br>
 ![Le Monastier](images/le-monastier.jpg)
 
 ---
