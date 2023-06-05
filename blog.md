@@ -2,7 +2,10 @@
 title: Blog
 ---
 ### 5/06 Le Puy - Le Monastier
-Première étape de la rando. Le beau temps est au rdv. Bonne mise en jambe de près de 20kms. De jolis sentiers avec alternance de montées/descentes. Paysage typique de la Haute-Loire. 
+Première étape de la rando. Le beau temps est au rdv. Bonne mise en jambe de près de 20kms. De jolis sentiers avec alternance de montées/descentes. Paysage typique de la Haute-Loire.<br>
+[La Loire](images/e1-img3.jpg)<br>
+[Ça monte](images/e1-img2.jpg)<br>
+[Un calvaire](images/e1-img1.jpg)<br>
 ![Le Monastier](images/le-monastier.jpg)
 
 ---
