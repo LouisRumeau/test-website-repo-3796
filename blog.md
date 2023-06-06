@@ -1,6 +1,11 @@
 ---
 title: Blog
 ---
+### Le Monastier - Le Bouchet St Nicolas - 6 juin
+Étape plus importante aujourd'hui avec 700 m de dénivelé positif. Un peu plus de 6h de marche ... sans compter les arrêts. Toujours des paysages Velay, pâturages... on retraverse la Loire.<br>
+
+---
+ 
 ### Le Puy - Le Monastier - 5 juin
 Première étape de la rando. Le beau temps est au rdv. Bonne mise en jambe de près de 20kms. De jolis sentiers avec alternance de montées/descentes. Paysage typique de la Haute-Loire.<br>
 [La Loire](images/e1-img3.jpg)<br>
