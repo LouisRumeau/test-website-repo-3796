@@ -7,7 +7,7 @@ title: Blog
 [Champ de lentilles du Puy](images/e2-img3.jpg)<br>
 [A Goudet](images/e2-img4.jpg)<br>
 [Château de Beaufort](images/e2-img5.jpg)<br>
-![Le Bouchet](images/e2-img1.jpg)<br>
+![Le Bouchet](images/e2-img1.jpg)
 
 ---
  
