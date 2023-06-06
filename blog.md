@@ -3,6 +3,8 @@ title: Blog
 ---
 ### Le Monastier - Le Bouchet St Nicolas - 6 juin
 Étape plus importante aujourd'hui avec 700 m de dénivelé positif. Un peu plus de 6h de marche ... sans compter les arrêts. Toujours des paysages Velay, pâturages... on retraverse la Loire.<br>
+[Modestie et Patrick](images/e2-img2.jpg)<br>
+![Le Bouchet](images/e2-img1.jpg)<br>
 
 ---
  
