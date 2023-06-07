@@ -9,7 +9,8 @@ Dernière étape en Haute-Loire. Moins de dénivelé que les autres jours, ça r
 [Les foins](images/e3-img3.jpg)<br>
 [A Pradelles](images/e3-img2.jpg)<br>
 
-Et pendant ce temps-là nos accompagnatrices ...
+Et pendant ce temps-là nos accompagnatrices ...<br>
+[Cascade de la Beaume](images/e3-img6.jpg)<br>
 
 ---
 
