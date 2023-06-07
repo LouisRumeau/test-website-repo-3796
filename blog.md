@@ -4,6 +4,11 @@ title: Blog
 ### Le Bouchet St-Nicolas / Pradelles - 7 juin
 Dernière étape en Haute-Loire. Moins de dénivelé que les autres jours, ça repose... du coup on a pris notre temps ! Toujours dans le Velay, on est passé que dans un seul village : Landos. A l'arrivée sur Pradelles, vue sur Langogne et le lac de Naussac. Demain étape historique avec l'entrée en Lozère.<br>
 ![Pradelles](images/e3-img1.jpg)
+[Pradelles](images/e3-img5.jpg)<br>
+[En plein air](images/e3-img4.jpg)<br>
+[Les foins](images/e3-img3.jpg)<br>
+[A Pradelles](images/e3-img2.jpg)
+
 ---
 
 ### Le Monastier - Le Bouchet St Nicolas - 6 juin
