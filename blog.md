@@ -1,6 +1,11 @@
 ---
 title: Blog
 ---
+### Le Bouchet St-Nicolas / Pradelles - 7 juin
+Dernière étape en Haute-Loire. Moins de dénivelé que les autres jours, ça repose... du coup on a pris notre temps ! Toujours dans le Velay, on est passé que dans un seul village : Landos. A l'arrivée sur Pradelles, vue sur Langogne et le lac de Naussac. Demain étape historique avec l'entrée en Lozère.
+
+---
+
 ### Le Monastier - Le Bouchet St Nicolas - 6 juin
 Étape plus importante aujourd'hui avec 700 m de dénivelé positif. Un peu plus de 6h de marche ... sans compter les arrêts. Toujours des paysages Velay, pâturages... on retraverse la Loire.<br>
 [Modestine et Patrick](images/e2-img2.jpg)<br>
