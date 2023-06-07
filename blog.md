@@ -11,6 +11,9 @@ Dernière étape en Haute-Loire. Moins de dénivelé que les autres jours, ça r
 
 Et pendant ce temps-là nos accompagnatrices ...<br>
 [Cascade de la Beaume](images/e3-img6.jpg)<br>
+[Au lac du Bouchet](images/e3-img7.jpg)<br>
+[Des fleurs](images/e3-img8.jpg)<br>
+[D'autres fleurs](images/img9.jpg)
 
 ---
 
