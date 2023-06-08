@@ -14,6 +14,7 @@ Rando historique avec passage à Langogne, là où les Rumeau ont vécu de nombr
 [Cheylard l'Évêque](images/e4-img5.jpg)<br>
 [Bien mérité](images/e4-img7.jpg)<br>
 L'histoire : Papa est arrivé en 1930 à Langogne. Il a dirigé le chantier Beaumartin et on a habité dans une maison qui était sur le chantier et ensuite au 50 rue Haute. On est parti sur Bordeaux en 1962.
+
 ---
 
 ### Le Bouchet St-Nicolas / Pradelles - 7 juin
