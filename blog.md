@@ -1,6 +1,11 @@
 ---
 title: Blog
 ---
+### Pradelles / Cheylard l'Évêque - 8 juin
+Rando historique avec passage à Langogne, là où les Rumeau ont vécu de nombreuses années (les derniers ont rejoint Bordeaux en 1962). Étape en Lozère dans le pays du Gévaudan. Paysage typique de la Margeride, alternance de plateaux, pâturages et de zones boisées. Arrivée au Cheylard petit village encaissé et dominé par une chapelle accessible par un chemin de croix.<br>
+
+
+
 ### Le Bouchet St-Nicolas / Pradelles - 7 juin
 Dernière étape en Haute-Loire. Moins de dénivelé que les autres jours, ça repose... du coup on a pris notre temps ! Toujours dans le Velay, on est passé que dans un seul village : Landos. A l'arrivée sur Pradelles, vue sur Langogne et le lac de Naussac. Demain étape historique avec l'entrée en Lozère.<br>
 ![Pradelles](images/e3-img1.jpg)
