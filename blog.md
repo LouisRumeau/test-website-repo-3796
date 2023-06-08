@@ -3,7 +3,7 @@ title: Blog
 ---
 ### Pradelles / Cheylard l'Évêque - 8 juin
 Rando historique avec passage à Langogne, là où les Rumeau ont vécu de nombreuses années (les derniers ont rejoint Bordeaux en 1962). Étape en Lozère dans le pays du Gévaudan. Paysage typique de la Margeride, alternance de plateaux, pâturages et de zones boisées. Arrivée au Cheylard petit village encaissé et dominé par une chapelle accessible par un chemin de croix.<br>
-
+![A Pradelles](images/pradelles-2023-06-08)<br>
 
 
 ### Le Bouchet St-Nicolas / Pradelles - 7 juin
