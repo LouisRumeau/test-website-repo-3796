@@ -8,12 +8,12 @@ Rando historique avec passage à Langogne, là où les Rumeau ont vécu de nombr
 [En forêt](images/e4-img6.jpg)<br>
 [A Langogne](images/e4-img2.jpg)<br>
 [Langogne le chantier](images/e4-chantier-langogne.jpg)<br>
-[Langogne rue haute](images/langogne-rue-haute.jpg)<br>
+[Langogne : 59 rue Haute](images/langogne-rue-haute.jpg)<br>
 [Un intrus](images/e4-img3.jpg)<br>
 [Repos](images/e4-img4.jpg)<br>
 [Cheylard l'Évêque](images/e4-img5.jpg)<br>
 [Bien mérité](images/e4-img7.jpg)<br>
-
+L'histoire : Papa est arrivé en 1930 à Langogne. Il a dirigé le chantier Beaumartin et on a habité dans une maison qui était sur le chantier et ensuite au 50 rue Haute. On est parti sur Bordeaux en 1962.
 ---
 
 ### Le Bouchet St-Nicolas / Pradelles - 7 juin
