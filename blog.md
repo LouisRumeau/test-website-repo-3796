@@ -7,9 +7,11 @@ Rando historique avec passage à Langogne, là où les Rumeau ont vécu de nombr
 [Arrivée sur Langogne](images/e4-img1.jpg)<br>
 [En forêt](images/e4-img6.jpg)<br>
 [A Langogne](images/e4-img2.jpg)<br>
+[Langogne le chantier](images/e4-chantier-langogne.jpg)<br>
+[Langogne rue haute](images/langogne-rue-haute.jpg)<br>
 [Un intrus](images/e4-img3.jpg)<br>
 [Repos](images/e4-img4.jpg)<br>
-[Cheylard l'Évêque](e4-img5.jpg)<br>
+[Cheylard l'Évêque](images/e4-img5.jpg)<br>
 [Bien mérité](images/e4-img7.jpg)<br>
 
 ---
