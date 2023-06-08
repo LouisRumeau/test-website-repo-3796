@@ -8,10 +8,11 @@ Rando historique avec passage à Langogne, là où les Rumeau ont vécu de nombr
 [En forêt](images/e4-img6.jpg)<br>
 [A Langogne](images/e4-img2.jpg)<br>
 [Un intrus](images/e4-img3.jpg)<br>
+[Repos](images/e4-img4.jpg)<br>
+[Cheylard l'Évêque](e4-img5.jpg)<br>
+[Bien mérité](images/e4-img7.jpg)<br>
 
-
-
-
+---
 
 ### Le Bouchet St-Nicolas / Pradelles - 7 juin
 Dernière étape en Haute-Loire. Moins de dénivelé que les autres jours, ça repose... du coup on a pris notre temps ! Toujours dans le Velay, on est passé que dans un seul village : Landos. A l'arrivée sur Pradelles, vue sur Langogne et le lac de Naussac. Demain étape historique avec l'entrée en Lozère.<br>
