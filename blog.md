@@ -12,6 +12,7 @@ Il fallait que cela arrive, la pluie était au rendez-vous de cette étape. En p
 [Lac de l'Auradou](images/e5-img5.jpg)<br>
 [Forêt de la bête du Gévaudan](images/e5-img6.jpg)<br>
 [A notre dame des neiges](images/e5-img2.jpg)<br>
+[Et une autre à l'abbaye](images/e5-img8.jpg)
 
 ---
 
