@@ -4,6 +4,7 @@ title: Blog
 ### Cheylard l'Évêque / La Bastide Puy Laurent - 9 juin
 
 ![La Bastide](images/e5-img1.jpg)
+
 ---
 
 ### Pradelles / Cheylard l'Évêque - 8 juin
