@@ -6,9 +6,9 @@ Il fallait que cela arrive, la pluie était au rendez-vous de cette étape. En p
 
 ![La Bastide](images/e5-img1.jpg)<br>
 [On bâche](images/e5-img3.jpg)<br>
-[Un](images/e5-img4.jpg)<br>
-[Un](images/e5-img5.jpg)<br>
-[A notre dame des neiges](images/e5-img6.jpg)<br>
+[Dans la brume](images/e5-img4.jpg)<br>
+[Lac](images/e5-img5.jpg)<br>
+[A notre dame des neiges](images/e5-img2.jpg)<br>
 
 ---
 
