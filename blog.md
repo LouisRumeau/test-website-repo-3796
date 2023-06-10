@@ -7,7 +7,7 @@ Guapa
 ### La Bastide Puy Laurent / Chasseradés - 10 juin
 Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie du chemin. Stevenson serait surpris... Du coup pour se remettre des émotions de la veille restaurant réservé ce midi.
 ![Paysage](images/e6-img0.jpg)<br>
-[Chasseradés](images/e6-img1.jpg)<br>
+[Au départ de La Bastide](images/e6-img1.jpg)<br>
 [Tiens une éolienne](images/e6-img5.jpg)<br>
 [Et une autre](images/e6-img4.jpg)<br>
 [Une énigme](images/e6-img2.jpg)<br>
