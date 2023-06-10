@@ -2,7 +2,7 @@
 title: Blog
 ---
 ![Guapa](images/e6-img9.jpg)<br>
-Guapa
+Wapa
 
 ### La Bastide Puy Laurent / Chasseradés - 10 juin
 Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie du chemin. Stevenson serait surpris... Du coup pour se remettre des émotions de la veille restaurant réservé ce midi.
