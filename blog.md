@@ -21,7 +21,7 @@ Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie d
 ![La Bête](images/e5-img7.jpg)<br>
 
 ### Cheylard l'Évêque / La Bastide Puy Laurent - 9 juin
-Il fallait que cela arrive, la pluie était au rendez-vous de cette étape. En plus notre plus longue étape (26 kms)! Cela change les paysages. Du coup pique nique rapide à Laveruyne (sous un porche de la mairie). L'etape se termine par un passage à l'abbaye de Notre Dame des Neiges occupée depuis 2022 par 8 soeurs. 
+Il fallait que cela arrive, la pluie était au rendez-vous de cette étape. En plus notre plus longue étape (26 kms)! Cela change les paysages. Du coup pique nique rapide à Laveyrune (sous un porche de la mairie). L'etape se termine par un passage à l'abbaye de Notre Dame des Neiges occupée depuis 2022 par 8 soeurs. 
 
 ![La Bastide](images/e5-img1.jpg)<br>
 [On bâche](images/e5-img3.jpg)<br>
