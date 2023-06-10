@@ -11,6 +11,8 @@ Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie d
 [Tiens une éolienne](images/e6-img5.jpg)<br>
 [Et une autre](images/e6-img4.jpg)<br>
 [Une énigme](images/e6-img2.jpg)<br>
+[Chasseradés](images/e6-img12.jpg)<br>
+
 ---
 
 ![La Bête](images/e5-img7.jpg)<br>
