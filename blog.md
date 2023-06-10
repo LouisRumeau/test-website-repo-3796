@@ -15,6 +15,12 @@ Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie d
 [Chasseradés : lavoir et abreuvoir](images/e6-img11.jpg)<br>
 [Chasseradés : tunnel ligne chemin de fer](images/e6-img10.jpg)<br>
 
+Et pendant ce temps là nos accompagnatrices visitent :<br>
+[En chemin...](images/images/e6-img6.jpg)<br>
+[La Guarde Guérin](images/e6-img7.jpg)<br>
+[La Garde Guérin suite](images/e6-img8.jpg)<br>
+[La Garde Guérin fin](images/e6-img9.jpg)
+
 
 ---
 
