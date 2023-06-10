@@ -1,6 +1,11 @@
 ---
 title: Blog
 ---
+### La Bastide Puy Laurent / Chasseradés - 10 juin
+Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie du chemin. Stevenson serait surpris... Du coup pour se remettre des émotions de la veille restaurant réservé ce midi.
+
+---
+
 ![La Bête](images/e5-img7.jpg)<br>
 
 ### Cheylard l'Évêque / La Bastide Puy Laurent - 9 juin
