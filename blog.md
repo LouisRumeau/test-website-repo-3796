@@ -4,7 +4,8 @@ title: Blog
 ### La Bastide Puy Laurent / Chasseradés - 10 juin
 Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie du chemin. Stevenson serait surpris... Du coup pour se remettre des émotions de la veille restaurant réservé ce midi.
 ![Paysage](images/e6-img1.jpg)<br>
-
+[Tiens une éolienne](images/e6-img5.jpg)<br>
+[Et une autre](images/e5-img4.jpg)<br>
 ---
 
 ![La Bête](images/e5-img7.jpg)<br>
