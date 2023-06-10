@@ -120,7 +120,7 @@ Saint-Étienne-Vallée-Française est en zone de culture protestante où s'est d
 
 ---
 
-**Saint Jean du Gard** 2436 habitants - dépt 07<br>
+**Saint Jean du Gard** 2436 habitants - dépt 30<br>
 Saint-Jean-du-Gard est une commune des Cévennes méridionales, située dans le nord du département du Gard, en région Occitanie.<br>
 Exposée à un climat méditerranéen, elle est drainée par le Gard, le Gardon de Saint-Jean, le ruisseau de Boisseson, le ruisseau de Brion et par divers autres petits cours d'eau. Incluse dans les Cévennes, la commune possède un patrimoine naturel remarquable : deux sites Natura 2000 (la « vallée du Gardon de Mialet » et la « vallée du Gardon de Saint-Jean ») et cinq zones naturelles d'intérêt écologique, faunistique et floristique.<br>
 [wikipédia](https://fr.wikipedia.org/wiki/Saint-Jean-du-Gard)<br>
