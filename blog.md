@@ -12,6 +12,9 @@ Petite étape ce matin, plutôt ensoleillée. Un parc d'éoliennes fait partie d
 [Et une autre](images/e6-img4.jpg)<br>
 [Une énigme](images/e6-img2.jpg)<br>
 [Chasseradés](images/e6-img12.jpg)<br>
+[Chasseradés : lavoir et abreuvoir](images/e6-img11.jpg)<br>
+[Chasseradés : tunnel ligne chemin de fer](images/e6-img10.jpg)<br>
+
 
 ---
 
