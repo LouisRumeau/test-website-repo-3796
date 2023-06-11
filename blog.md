@@ -1,9 +1,13 @@
 ---
 title: Blog
 ---
-###Cheylard l'Évêque / Le Bleymard - 11 juin
+### Cheylard l'Évêque / Le Bleymard - 11 juin
 Belle étape entre ces 2 villages, sous le soleil. On passe par Mirandol, où Stevenson séjourna et rencontra des techniciens venus en repérage pour la future ligne de chemin de fer qui sera construite plus de 20 ans après (en 1901). Arrêt aux sources du Lot dans la forêt du Goulet. Petit filet d'eau très froid (idéal pour refroidir le rosé...). Arrivée sur le Bleymard, village typique avec ses toits en lauze.
 ![Bleymard](images/e7-img10.jpg)<br>
+[Au démarrage](images/e7-img1.jpg)<br>
+[Mirandol](images/e7-img2.jpg)<br>
+[Mirandol](images/e7-img3.jpg)<br>
+
 
 ---
 
