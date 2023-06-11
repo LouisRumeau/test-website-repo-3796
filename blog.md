@@ -9,6 +9,9 @@ Belle étape entre ces 2 villages, sous le soleil. On passe par Mirandol, où St
 [Mirandol viaduc chemin de fer](images/e7-img3.jpg)<br>
 [Sources du Lot](images/e7-img5.jpg)<br>
 [Ça fait du bien](images/e7-img6.jpg)<br>
+[On ferait presque la sieste](images/e7-img7.jpg)<br>
+[Les Alpiers](images/e7-img8.jpg)<br>
+[Vue sur le Bleymard](images/e7-img10)<br>
 
 
 ---
