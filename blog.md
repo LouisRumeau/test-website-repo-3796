@@ -12,7 +12,10 @@ Belle étape entre ces 2 villages, sous le soleil. On passe par Mirandol, où St
 [On ferait presque la sieste](images/e7-img7.jpg)<br>
 [Les Alpiers](images/e7-img8.jpg)<br>
 [Vue sur le Bleymard](images/e7-img10)<br>
-
+[Bleymard 1](images/e7-img12.jpg)<br>
+[Bleymard 2](images/e7-img13.jpg)<br>
+[Bleymard 3](images/e7-img14.jpg)<br>
+[Bleymard 4](images/e7-img15.jpg)
 
 ---
 
