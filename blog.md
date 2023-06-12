@@ -8,8 +8,10 @@ Aujourd'hui on bascule dans les Cévennes. Les cours d'eau partent désormais ve
 [Station du mont Lozère](images/e8-img2.jpg)<br>
 [Eglise à la station](images/e8-img4.jpg)<br>
 [Dans la montée vers Finiels](images/e8-img5.jpg)<br>
+[Tout le groupe dans la montée](images/e8-img10)<br>
 [L'orage et la grêle](images/e8-img6.jpg)<br>
-[Dans la descente vers Pont de Monvert](images/e8-img7.jpg)
+[Dans la descente vers Pont de Monvert](images/e8-img7.jpg)<br>
+[En terre protestante le cimetière fait partie de la maison](images/e8-img9.jpg)
 
 ---
 
