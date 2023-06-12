@@ -6,7 +6,7 @@ Aujourd'hui on bascule dans les Cévennes. Les cours d'eau partent désormais ve
 ![Pont de Monvert](images/e8-img8.jpg)<br>
 [Au démarrage](images/e8-img1.jpg)<br>
 [Station du mont Lozère](images/e8-img2.jpg)<br>
-[Eglise à la station](images/e8-img4.jpg]<br>
+[Eglise à la station](images/e8-img4.jpg)<br>
 
 ---
 
@@ -62,8 +62,7 @@ Il fallait que cela arrive, la pluie était au rendez-vous de cette étape. En p
 [Lac de l'Auradou](images/e5-img5.jpg)<br>
 [Forêt de la bête du Gévaudan](images/e5-img6.jpg)<br>
 [A notre dame des neiges](images/e5-img2.jpg)<br>
-[Et une autre à l'abbaye](images/e5-img8.jpg)
-
+[Et une autre à l'abbaye](images/e5-img8.jpg)<br>
 ---
 
 ### Pradelles / Cheylard l'Évêque - 8 juin
