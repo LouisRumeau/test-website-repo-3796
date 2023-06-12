@@ -1,6 +1,12 @@
 ---
 title: Blog
 ---
+### Le Bleymard - Pont de Monvert / 12 juin
+Aujourd'hui on bascule dans les Cévennes. Les cours d'eau partent désormais vers la Méditerranée. On commence par une montée sur plusieurs kilomètres pour atteindre le mont Finiels (1699 m) en passant par la station de ski du Mont Lozère. A quelques jours près on aurait vu 2000 moutons qui arrivent dimanche prochain aux estives. Juste après le pique nique orage et grêle au rdv... Bon on a de la chance cela n'a pas duré longtemps. Arrivée à Pont de Monvert au bord du Tarn... Et de nouveau la pluie revient.
+![Pont de Monvert](images/e8-img1.jpg)<br>
+
+---
+
 ### Cheylard l'Évêque / Le Bleymard - 11 juin
 Belle étape entre ces 2 villages, sous le soleil. On passe par Mirandol, où Stevenson séjourna et rencontra des techniciens venus en repérage pour la future ligne de chemin de fer qui sera construite plus de 20 ans après (en 1901). Arrêt aux sources du Lot dans la forêt du Goulet. Petit filet d'eau très froid (idéal pour refroidir le rosé...). Arrivée sur le Bleymard, village typique avec ses toits en lauze.
 ![Bleymard](images/e7-img10.jpg)<br>
