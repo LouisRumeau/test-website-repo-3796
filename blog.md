@@ -1,6 +1,13 @@
 ---
 title: Blog
 ---
+### Pont de Monvert / Florac - 13 juin
+_mise à jour en cours_
+Étape la plus longue aujourd'hui. Près de 30 kms. Dès le départ ça monte fort pendant 2kms sur une draille (chemin de pierre servant pour les troupeaux montant aux estives). 
+
+---
+
+
 ### Le Bleymard - Pont de Monvert / 12 juin
 Aujourd'hui on bascule dans les Cévennes. Les cours d'eau partent désormais vers la Méditerranée. On commence par une montée sur plusieurs kilomètres pour atteindre le sommet du Finiels (1699 m) en passant par la station de ski du Mont Lozère. A quelques jours près on aurait vu 2000 moutons qui arrivent dimanche prochain aux estives. Juste après le pique nique orage et grêle au rdv... Bon on a de la chance cela n'a pas duré longtemps. Arrivée à Pont de Monvert au bord du Tarn... Et de nouveau la pluie revient.
 ![Pont de Monvert](images/e8-img8.jpg)<br>
