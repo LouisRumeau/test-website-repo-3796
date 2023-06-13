@@ -2,7 +2,7 @@
 title: Blog
 ---
 ### Pont de Monvert / Florac - 13 juin
-_mise à jour en cours_
+_mise à jour en cours_<br>
 Étape la plus longue aujourd'hui. Près de 30 kms. Dès le départ ça monte fort pendant 2kms sur une draille (chemin de pierre servant pour les troupeaux montant aux estives). 
 ![Florac](images/e9-img1.jpg)<br>
 
