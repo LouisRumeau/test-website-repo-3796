@@ -8,6 +8,8 @@ _mise à jour en cours_<br>
 [Au départ de Pont de Monvert](images/e9-img2.jpg)<br>
 [Et une autre](images/e9-img3.jpg)<br>
 [On quitte Pont de Monvert](images/e9-img4.jpg)<br>
+[Lieu de rassemblement des camisards](images/e9-img5.jpg)<br>
+[La barre des Cévennes](images/e9-img6.jpg)<br>
 
 
 ---
