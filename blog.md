@@ -1,6 +1,11 @@
 ---
 title: Blog
 ---
+![Camisards](images/e9-img0.jpg)<br>
+Jean Cavalier chef Camisard.<br>
+En savoir plus sur [wikipédia](https://fr.m.wikipedia.org/wiki/Camisard)<br>
+
+
 ### Pont de Monvert / Florac - 13 juin
 _mise à jour en cours_<br>
 Étape la plus longue aujourd'hui. Près de 30 kms. Dès le départ ça monte fort pendant 2kms sur une draille (chemin de pierre servant pour les troupeaux montant aux estives). 
