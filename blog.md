@@ -16,7 +16,7 @@ _mise à jour en cours_<br>
 [La barre des Cévennes](images/e9-img6.jpg)<br>
 [Cabane dans la forêt](images/e9-img8.jpg)<br>
 [Le ruisseau devient plus gros](images/e9-img9.jpg)<br>
-[Eglise de Bedoues](e9-img10.jpg)<br>
+[Eglise de Bedoues](images/e9-img10.jpg)<br>
 
 
 ---
