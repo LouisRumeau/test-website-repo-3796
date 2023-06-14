@@ -9,6 +9,9 @@ _mise à jour en cours_<br>
 [Des belges font le chemin](images/e10-img8.jpg)<br>
 [Toujours les belges](images/e10-img9.jpg)<br>
 [Sur l'ancienne voie ferrée de Cassagnas](images/e10-img13.jpg)<br>
+[On longe la rivière](images/e10-img12.jpg)<br>
+[A l'arrivée une belle rencontre](images/e10-img10.jpg)<br>
+<br>
 Et pendant ce temps nos accompagnatrices qui sont désormais 3 avec le renfort d'Annie<br>
 [A Sainte Enimie](images/e10-img3.jpg)<br>
 [toujours Sainte Enimie](images/e10-img4.jpg)<br>
