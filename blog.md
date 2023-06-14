@@ -8,7 +8,7 @@ Et pendant ce temps nos accompagnatrices qui sont désormais 3 avec le renfort d
 [A Sainte Enimie](images/e10-img3.jpg)<br>
 [toujours Sainte Enimie](images/e10-img4.jpg)<br>
 [encore Sainte Enimie](images/e10-img5.jpg)<br>
-[A Prades  : un pigeonnier?](images/e10-img2)
+[A Prades  : un pigeonnier?](images/e10-img2.jpg)
 
 ---
 
