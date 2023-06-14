@@ -4,7 +4,11 @@ title: Blog
 ### Florac / Cassagnas (ancienne Gare) - 14 juin
 Étape tranquille jusqu'au gîte de l'ancienne gare de Cassagnas. Peu de montées, beaucoup de châtaigniers en forêt. On longe beaucoup de ruisseaux. De Saint Jean d'Arpaon à Cassagnas on suit l'ancienne voie ferrée qui suit la Mimente.
 ![Cassagnas](images/e10-img1.jpg)<br>
-
+Et pendant ce temps nos accompagnatrices qui sont désormais 3 avec le renfort d'Annie<br>
+[A Sainte Enimie](images/e10-img3.jpg)<br>
+[toujours Sainte Enimie](images/e10-img4.jpg)<br>
+[encore Sainte Enimie](images/e10-img5.jpg)<br>
+[A Prades  : un pigeonnier?](images/e10-img2)
 
 ---
 
