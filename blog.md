@@ -6,8 +6,7 @@ Jean Cavalier chef Camisard.<br>
 En savoir plus sur [wikipédia](https://fr.m.wikipedia.org/wiki/Camisard)<br>
 
 ### Pont de Monvert / Florac - 13 juin
-_mise à jour en cours_<br>
-Étape la plus longue aujourd'hui. Près de 30 kms. Dès le départ ça monte fort pendant 2kms sur une draille (chemin de pierre servant pour les troupeaux montant aux estives). 
+Étape la plus longue aujourd'hui. Près de 30 kms. Dès le départ ça monte fort pendant 2kms sur une draille (chemin de pierre servant pour les troupeaux montant aux estives). On est maintenant dans les Cévennes au pays des camisards, on passera en bordure d'une forêt où ils venaient prier et se rassembler. On voit de moins en moins de troupeaux de vaches et à l'arrivée sur Florac on aperçoit des châtaigniers.  Pique nique avec au loin la barre des Cévennes et au pied de la barre Florac qu'on ne voit pas. Pendant ce temps nos compagnes se promènent et passent à la boutique Tuffery (jeans 100% fabriqués en Lozère depuis fin 19eme).
 ![Florac](images/e9-img1.jpg)<br>
 [Au départ de Pont de Monvert](images/e9-img2.jpg)<br>
 [Et une autre](images/e9-img3.jpg)<br>
