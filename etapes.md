@@ -25,9 +25,9 @@ https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/etape-9.jpg)
 10. Mercredi 14/06 : Florac - Ancienne gare Cassagnas 17,4 kms (4h20)<br>[Voir sur Visiorando](https://www.visorando.com/randonnee-florac-cassagnas/) / [carte routière](
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/etape-10.jpg)
-11. Jeudi 15/06 : Ancienne gare Cassagnas - St Étienne vallée française 23,9 kms (6h45)<br>[Voir sur Visiorando](https://www.visorando.com/randonnee-cassagnas-saint-etienne-vallee-francaise/) / [carte routière](
+11. Jeudi 15/06 : Ancienne gare Cassagnas - Pont de Burgen 21,9 kms (6h45)<br>[Voir sur Visiorando](https://www.visorando.com/randonnee-cassagnas-saint-etienne-vallee-francaise/) / [carte routière](
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/etape-11.jpg)
-12. Vendredi 16/06 : Saint Étienne vallée française  - Saint Jean du Gard 12,7 kms (3h55)<br>[Voir sur Visiorando]() / [carte routière](
+12. Vendredi 16/06 : Pont de Burgen   - Saint Jean du Gard 14 kms (3h55)<br>[Voir sur Visiorando]() / [carte routière](
 https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images/etape-12.jpg)
 
 ---
