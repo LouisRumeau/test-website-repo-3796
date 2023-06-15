@@ -8,11 +8,11 @@ Dernière étape en Lozère. On est vraiment dans le sud du département, limite
 [Hommage aux camisards](images/e11-img2.jpg)<br>
 [Vue des Cévennes](images/e11-img3.jpg)<br>
 [Ancienne voie romaine](images/e11-img4.jpg)<br>
-[Cinq](images/e11-img5.jpg)<br>
-[Six](images/e11-img6.jpg)<br>
-[Sept](images/e11-img7.jpg)<br>
-[Huit](images/e11-img8.jpg)<br>
-[Neuf](images/e11-img9.jpg)
+[En allant à St Germain de Calberte](images/e11-img5.jpg)<br>
+[la suite](images/e11-img6.jpg)<br>
+[A St Germain de Calberte](images/e11-img7.jpg)<br>
+[Vers le Pont de Burgen](images/e11-img8.jpg)<br>
+[Le pont de Burgen](images/e11-img9.jpg)
 
 ---
 
