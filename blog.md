@@ -17,7 +17,7 @@ Dernière étape en Lozère. On est vraiment dans le sud du département, limite
 [Le pont de Burgen](images/e11-img9.jpg)
 
 ---
-
+![Allemands](images/e11-img11.jpg)
 **Allemand antifascistes.**<br>
 Les Cévennes ont été un lieu important pour la résistance et notamment pour des allemands, la plupart communistes. Après leur engagement dans les brigades internationales lors de la guerre civile espagnole ils se battront ici dans les Cévennes.<br>
 En savoir plus [ici](https://www.persee.fr/doc/homig_1142-852x_1991_num_1148_1_1747)<br>
