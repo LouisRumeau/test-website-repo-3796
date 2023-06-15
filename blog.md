@@ -3,7 +3,7 @@ title: Blog
 ---
 ### Cassagnas / Pont de Burgen - 15 juin
 _mise à jour en cours_ <br>
-Dernière étape en Lozère. On est vraiment dans le sud du département, limite Gard.
+Dernière étape en Lozère. On est vraiment dans le sud du département, limite Gard.<br> On passe par Saint Germain de Calberte, où nous rejoignons notre team qui finira l'étape avec nous. Le climat et la végétation change d manière notable. Les genêts ne sont plus en fleurs. La végétation est de plus en plus méditerranéenne. Le soir au gîte c'est notre premier repas en terrasse à l'extérieur. Ça sent le retour...
 ![Pont de Burgen](images/e11-img1.jpg)<br>
 [Hommage aux camisards](images/e11-img2.jpg)<br>
 [Vue des Cévennes](images/e11-img3.jpg)<br>
