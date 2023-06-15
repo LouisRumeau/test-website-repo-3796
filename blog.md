@@ -9,7 +9,8 @@ Dernière étape en Lozère. On est vraiment dans le sud du département, limite
 
 **Allemand antifascistes.**<br>
 Les Cévennes ont été un lieu important pour la résistance et notamment pour des allemands, la plupart communistes. Après leur engagement dans les brigades internationales lors de la guerre civile espagnole ils se battront ici dans les Cévennes.<br>
-En savoir plus [ici](https://www.persee.fr/doc/homig_1142-852x_1991_num_1148_1_1747)
+En savoir plus [ici](https://www.persee.fr/doc/homig_1142-852x_1991_num_1148_1_1747)<br>
+[Et un autre article](https://fusilles-40-44.maitron.fr/spip.php?article197247)
 
 ---
 
