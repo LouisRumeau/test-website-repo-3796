@@ -2,7 +2,7 @@
 title: Blog
 ---
 ### Cassagnas / Pont de Burgen - 15 juin
-_ mise à jour en cours _<br>
+_ mise à jour en cours _ <br>
 Dernière étape en Lozère. On est vraiment dans le sud du département, limite Gard.
 ![Pont de Burgen](images/e11-img1.jpg)<br>
 [Hommage aux camisards](images/e11-img2.jpg)<br>
