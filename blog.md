@@ -3,8 +3,14 @@ title: Blog
 ---
 ### Pont de Burgen / Saint Jean du Gard - 16 juin
 Dernière étape du périple. On part du sud Lozère et on finit dans le Gard. Paysage de plus en plus du midi, pins et chaleur au rdv. Heureusement on termine en début d'après midi. On passe par Sainte Etienne vallée française avec son château qui domine le village. L'etape n'est pas de tout repos avec des passages sur des lignes de crêtes avec plein ce cailloux... Pendant ce temps là nos accompagnatrices sont au bord de l'eau... <br>
-![nous](images/e12-img0.jpg)<br>
+![nous](images/e12-img6_1.jpg)<br>
 [Le dernier départ](images/e12-img1.jpg)<br>
+[Château de Cambiere](images/e12-img2.jpg)<br>
+[Et une autre du château](images/e12-img3.jpg)<br>
+[Et pendant ce temps là les filles au bord de l'eau](images/e12-img4.jpg)<br>
+[On passe dans le Gard](images/e12-img5.jpg)<br>
+[Au resto à l'arrivée](images/e12-img6.jpg)<br>
+
 
 
 ---
