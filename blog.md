@@ -1,6 +1,7 @@
 ---
 title: Blog
 ---
+![Brassens](images/e12-img0.jpg)<br>
 ![Départ Cassagnas](images/e11-img10.jpg)
 
 ### Cassagnas / Pont de Burgen - 15 juin
