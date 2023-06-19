@@ -2,6 +2,7 @@
 title: Etapes
 ---
 ### Résumé des étapes
+
 Avec les liens directs sur visio rando et sur une image de la carte routière.<br><br>
 <u>Dimanche 4/06</u> : arrivée au Puy en Velay
  
