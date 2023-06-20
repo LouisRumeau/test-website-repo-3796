@@ -1,7 +1,8 @@
 ---
-title: Etapes
+title: Étapes
 ---
-### Etapes faites lors du séjour
+### Étapes faites lors du séjour
+
 |Date|Étape|Distance|Temps|Dénivelé positif|Dénivelé négatif|
 |:-----------:|:-----------|-----------:|:-----------:|-----------:|-----------:|
 |5.06.2023|Le Puy / Le monastier|14,40|3h53|535|280|
