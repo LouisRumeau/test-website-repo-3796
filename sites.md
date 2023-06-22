@@ -14,3 +14,5 @@ https://raw.githubusercontent.com/LouisRumeau/test-website-repo-3796/main/images
 [site](https://www.visorando.com/randonnee-chemin-de-stevenson/)
 
 ---
+
+[Balade](images/balade-groupe.mp4)
